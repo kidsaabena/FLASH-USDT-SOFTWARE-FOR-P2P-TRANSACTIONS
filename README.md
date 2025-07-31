@@ -18,5 +18,6 @@
  Telegram: [https://t.me/DigitalVa0lt](https://t.me/DigitalVa0lt)
  
 
-###  Keywords  
-`flash usdt`, `usdt flasher`, `flash usdt software`, `p2p crypto software`, `defi arbitrage`, `crypto otc deals`, `usdt flash 2025`, `digital vault flash usdt`
+###  Disclaimer
+  Avoid imitations or scams  out there– Only licensed users receive full software access. trust Digital Vault as your official source.
+
